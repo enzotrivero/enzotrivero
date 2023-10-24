@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @enzotrivero
+- 👀 I’m interested in having a part time job to conclude with my next university title.
+- 🌱 I’m currently learning Javascript, (HTML, CSS)
+- 💞️ I’m looking to collaborate on any company that would like to give me the opportunity to work with them
+- 📫 How to reach me enzotrivero@gmail.com
+- My native lenguaje is Spanish, but i feel pretty comfortable speaking in English, and i also have the First Certificate Title.
+- I was born on Mar del Plata, Argentina.
+- For any concern about me, do not doubt to send me an email. Will answer ASAP.
